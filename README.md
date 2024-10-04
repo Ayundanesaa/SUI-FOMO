@@ -1,0 +1,2 @@
+# SUI-FOMO
+SUI FOMO
